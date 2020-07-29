@@ -1,0 +1,1 @@
+天生我才必有用[everybody is good for something]
